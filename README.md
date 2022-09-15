@@ -7,17 +7,17 @@
 
 - 🔭 Criação de site [Ethera Roleplay](etheracity.com)
 
-- 🌱 Formações **Infituto Federal da Bahia, Senai.**
+- 🌱 Formações: **Infituto Federal da Bahia, Senai.**
 
 - 👯 Objetos 3D [OMSI SIMULATOR](https://bom-jesus-da-serra.webnode.
 
 
 
-- Numero de contato profissional [(75) 99225-4380]((75) 99225-4380)
+- Numero de contato profissional (75) 99225-4380
 
-- sou formador em **Tecnologia da Informação e Comunicação. Informática avançada e segurança de rede**
+- sou formado em; **Tecnologia da Informação e Comunicação. Informática avançada e segurança de rede**
 
-- 📫 fale comigo **ruanrocha33@gmail.com**
+- 📫 fale comigo; **ruanrocha33@gmail.com**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
